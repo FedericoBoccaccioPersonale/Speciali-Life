@@ -1,4 +1,4 @@
-# Speciali\File ✨ 🇮🇹
+# Speciali\Life ✨ 🇮🇹
 https://federicoboccaccio.wordpress.com/life/
 
 # Importante
